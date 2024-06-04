@@ -8,6 +8,6 @@ Somedays, i'll finally release at least one game...
 
 Gamedev student at Moscow Polytechnic University during the day
 
-Video jockey for Helikon Opera at night
+VJ for Helikon Opera at night
 
 If you'r curious, take a look down below!
