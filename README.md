@@ -1,4 +1,4 @@
-### Hi, darling!!!
+### Hello, there!!!
 
 Somedays, i'll finally release at least one game...
 
