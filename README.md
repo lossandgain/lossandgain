@@ -1,8 +1,6 @@
-### Hello, there!
+### Hello there!
 
 **3d artist/3d generalist**
-
-<br>
 
 Video Engineer for Carrot Broadcast
 
